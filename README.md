@@ -19,4 +19,4 @@ MR Animated UI 是什么 ?
 @[potaaato-窝有UI,你算什么?](https://www.ccw.site/student/66a2531b3feba7300982a8cd)
 
 @[(这位就要好好介绍了)likele-AI是我的强项,画画也是一批,你呢?](https://www.ccw.site/student/66fe9ee7f67fb312879ab508)
-[likele的AI介绍](https://www.bilibili.com/list/ml3336617396?spm_id_from=333.999.0.0&oid=113293888915564&bvid=BV1ey2hYTEt2)
+[likele的AI介绍](https://www.bilibili.com/video/BV1ey2hYTEt2/?spm_id_from=333.1245.0.0)
